@@ -1,0 +1,24 @@
+# PREFACE
+
+
+
+Évidemment, mon rêve serait d’écrire des nouvelles comme Stefan Zweig ou Franz Kafka, ou encore comme Oscar Wilde, avec son humour décalé. Mais ici, je m’attacherai à raconter que quelques moments vécus pendant mes années de travail en tant que guide interprète et conférencier de langue russe, auprès des groupes soviétiques et auprès des riches oligarques russes. Ce fut pendant la période dite de Guerre froide et après la chute du mur de Berlin.
+
+Ce fut la lutte entre deux mondes : le capitalisme et le communisme, disons plutôt le socialisme. Ce ne fut pas simplement un affrontement idéologique, mais aussi économique, culturel, scientifique. Tout ce que l’être humain excelle. Il y avait aussi des jeux scabreux aux conséquences pas trop graves. Des joutes entre deux nationaux de bons buveurs qui s’affrontaient pour déterminer qui était capable de supporter et de boire le plus d’alcool. Il faut dire que les deux équipes étaient souvent sous la table. Match nul !
+
+Le troisième protagoniste sur la scène politique fut représenté par le Maréchal Tito et son idée de l’autogestion. Grâce à son rôle prépondérant durant la Seconde Guerre Mondiale, il a réussi à instaurer une certaine indépendance face aux deux blocs antagonistes, ce qui a permis à notre pays de jouir d'une certaine liberté et moi, d’être témoin privilégié de ces deux systèmes étatiques.
+
+Je suis venu en France en tant qu'« émigré culturel », comme j’aimais me présenter. Hélas, la Yougoslavie explosa dès la mort de Tito en 1980, en plusieurs républiques autonomes...
+
+Dans les années soixante-dix et quatre-vingts, la France fut le pays le plus convoité pour les étrangers pour les multiples facettes qu’elle présentait. La période 1970-1989 fut aussi l’époque de combats incroyables entre les Français de gauche et les Français de droite, entre les idéologies de droite et de gauche. La vie réelle fut plus cruelle. C’est aussi la période où des évènements inimaginables se préparaient en URSS. Ce fut l’implosion, telle un jeu de cartes d’une puissance considérée invincible, propageant ses ondes politiques sur presque toute la planète, avec des conséquences imprévisibles. La mafia et la pègre se sont emparées du pays. La chute du Mur de Berlin a bouleversé l’atmosphère du tourisme : les voyageurs de l’ex-bloc communiste se ruèrent vers les capitales historiques de l’Europe occidentale. Les palaces européens, les boutiques de luxe, les restaurants étoilés ne s'offusquaient point d’encaisser l'argent de la mafia... Les investisseurs occidentaux se sont précipités vers l’Europe de l’Est. À leurs risques et périls ! Ils ont tout perdu avec l’ascension de
+Poutine. Même le McDo, qui jouissait d’une réputation phénoménale auprès du public russe, ferma ses portes.
+
+Pendant cette période riche en événements, j’ai eu l’occasion de rencontrer des personnalités exceptionnelles : le champion d’échecs Spassky, le concepteur du fusil d’assaut Kalachnikov, le poète et comédien Volodia Vysotski, le pilote de chasse Maressiev, un cosmonaute...
+
+Le calme n’a pas duré. La guerre commencée le 22 février 2022 par l’agression de l’Ukraine, a de nouveau divisé les deux mondes de façon tragique. Cette fois avec des victimes humaines. Les marchands d’armes se sont empressés d’aider en déstockant des armes, déjà obsolètes. Est-ce la faute de Descartes, Marx ou Engels? Certainement ! Et encore de Confucius, de Bouddha et de Gandhi et leurs théories, et lorsque cela ne fonctionnait pas de manière pacifique, on essayait de les imposer avec des guerres.
+
+N’oublions pas la pression de l’islam et l’immigration de la population islamique, laquelle s’ajoute à celle des pays de l’Est. En rentrant dans les pays libres qui les reçoivent, ils ont la tête pleine de rêves, pensent qu’ils pourront trouver l’Eldorado, et accéder à des vies plus faciles et riches. Mais ces populations, ces gens, se heurtent aux désillusions ainsi qu’aux problèmes administratifs kafkaïens. Lorsque les désaccords et désillusions atteignent leur paroxysme, des guerres nouvelles éclatent.
+
+Je ne veux pas écrire des nouvelles tristes. Ni ne peux arrêter les catastrophes répétitives. Ces nouvelles sont le plus souvent des interrogations auxquelles je n’ai pas de réponses ou des perles glanées dans la vie quotidienne. Et étrangement, tout se répète immuablement, avec pour seul changement les lieux et les formes, les lieux et les habits. Manquons-nous de nouvelles idées ? Faut-il de nouvelles façons d’aborder notre Univers ? Le wokisme, quel étrange mot ? Philosophie du 21ème siècle ? Nous donnera-t-elle la réponse ? Oublions Marx et Engels ? Leurs théories sont-elles devenues dépassées, images d’un ancien monde ? Le temps d’obtenir une réponse me donnera peut-être le loisir d’écrire un autre livre !
+
+                                                                                          Paris, 2025
